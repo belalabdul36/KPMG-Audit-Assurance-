@@ -29,4 +29,4 @@ I'm an aspiring accounting and finance professional with a passion for audit and
 
 ## 📫 Connect With Me
 - LinkedIn: [linkedin.com/in/belal-abdul](https://linkedin.com/in/belal-abdul)
-- Email: your@email.com
+- Email: belalabdul36@gmail.com 
